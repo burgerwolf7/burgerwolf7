@@ -12,7 +12,7 @@ norwegian/czech autistic wlw... goth metalhead
 
 <p align="center">
 <img src="https://64.media.tumblr.com/d9b6699df09ba5dade9e78336729ed7b/9a5e59d4a20102aa-47/s75x75_c1/d313c1250a331ff2b826f42aaa231cc474005987.gif" alt="pixel coffin with rose vines and red sparkles twinkling" />
-guilty gear, soad + serj tankian, lesbian bed death, scary bitches, animal jam, petscop, pmmm, rain world, ms100, metal in general <3
+guilty gear, soad + serj tankian, lesbian bed death, scary bitches, animal jam, petscop, pmmm, rain world, mp100, metal in general <3
 </p>
 </div>
 
