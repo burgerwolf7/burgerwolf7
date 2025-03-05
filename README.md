@@ -21,6 +21,6 @@ guilty gear, soad + serj tankian, lesbian bed death, scary bitches, animal jam, 
 <h3 align="center">☆ extra info</h3>
 <p align="center">
 <img src="https://64.media.tumblr.com/f57468fd0e968dfcdce28974d3f3a4b6/4149a1d35ab9816c-bc/s75x75_c1/df472fffe7b0b12ad2e4cdf550a8610d17e5c9d7.gif" alt="pixel gif of blood splattering" />
-i dont friend people!! if you crown / whisper me and i dont respond i forgot... basic dni, proshit zoos pedo gtfo. no tonetags thanku <3
+i dont friend people!! if you crown / whisper me and i dont respond i forgot... basic dni, proshit zoos pedo gtfo. no tonetags thanku!
 </p>
 </div>
