@@ -2,7 +2,7 @@
 <h1 align="center">VIVIAN!!! ☆ all prns</h1>
 <p align="center">
 <img src="https://64.media.tumblr.com/6625acfa135f373639d42c4c2afa265c/9a5e59d4a20102aa-4d/s75x75_c1/25095466d0f9bed2e5f9c034c38d543b922ca8da.gif" alt="dark grey pixel deer hopping around" />
-norwegian/czech autistic wlw... goth metalhead
+nor/cze/wal autistic wlw... goth metalhead
 </p>
 </div>
 
