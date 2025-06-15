@@ -10,7 +10,7 @@ nor/cze audhd wlw, metalhead
 
 <p align="center">
 <img src="https://64.media.tumblr.com/e9d5a735458cffccc5c070d53336f1c3/1419020537d2743e-77/s75x75_c1/62124f4a8f46a31f182783432a7827376331587c.gif" alt="red star spinning clockwise" />
-guilty gear, soad + serj tankian, dunmeshi, kill la kill, tbhk, animal jam, petscop, pmmm, rain world, mp100, aggretsuko, metal in general <3
+guilty gear, soad + serj tankian, ptv, maximum the hormone, dunmeshi, kill la kill, tbhk, animal jam, witcher, petscop, pmmm, rain world, mp100, aggretsuko, metal in general <3
 </p>
 </div>
 
