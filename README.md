@@ -1,4 +1,4 @@
-<p align="center"> <img src="https://64.media.tumblr.com/f776e49a5e2e3e310d932b5de5384571/ae3d6aa5a15a6724-a0/s640x960/ddddea725a39376bc8157901daeed217143f2b7b.pnj" width="390" height="275" alt="chimera falin from delicious in dungeon holding a walking mushroom" /> </p>
+<p align="center"> <img src="https://64.media.tumblr.com/f776e49a5e2e3e310d932b5de5384571/ae3d6aa5a15a6724-a0/s640x960/ddddea725a39376bc8157901daeed217143f2b7b.pnj" width="290" height="220" alt="chimera falin from delicious in dungeon holding a walking mushroom" /> </p>
 <h1 align="center">VIVIAN!!! ☆ all prns</h1>
 <p align="center">
 <img src="https://64.media.tumblr.com/662aa3b86ba765c8f99a95dd5fa86b95/ab13a976a4e68a06-5a/s75x75_c1/036c53b87a4c51536ac3ac86cd09593ecc8ac3e9.gif" alt="chicken pixel favicon" />
