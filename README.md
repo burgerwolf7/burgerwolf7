@@ -2,7 +2,7 @@
 <h1 align="center">VIVIAN!!! ☆ all prns</h1>
 <p align="center">
 <img src="https://64.media.tumblr.com/662aa3b86ba765c8f99a95dd5fa86b95/ab13a976a4e68a06-5a/s75x75_c1/036c53b87a4c51536ac3ac86cd09593ecc8ac3e9.gif" alt="chicken pixel favicon" />
-nor/cze audhd wlw, metalhead
+nor/cze audhd wlw, metalhead. any pronouns and terms are fine!
 </p>
 </div>
 
@@ -17,7 +17,7 @@ i forget to update my github often so you can find my interests in my rentry ins
 <h3 align="center">☆ extra info</h3>
 <p align="center">
 <img src="https://64.media.tumblr.com/f57468fd0e968dfcdce28974d3f3a4b6/4149a1d35ab9816c-bc/s75x75_c1/df472fffe7b0b12ad2e4cdf550a8610d17e5c9d7.gif" alt="pixel gif of blood splattering" />
-i'm quiet a lot, i can be pretty dry too. if you crown / whisper me and i dont respond i forgot,,, basic dni, proshit zoos pedo gtfo. i don't int with fandoms,, no tonetags thanku!
+i'm quiet a lot, i can be pretty dry too. if you crown / whisper me and i dont respond i forgot,,, basic dni, proshit zoos pedo gtfo. i hide freely. i don't int with fandoms,, no tonetags thanku!
 </p>
 </div>
 
