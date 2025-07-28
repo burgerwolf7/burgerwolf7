@@ -13,7 +13,7 @@ norwegian czech ! <br>
 <p align="center">
 i'm pretty dry / blunt sorry , also i'm <b> forgetful </b> so i may <br>
 forget to respond to crowns ! i try not to ignore them though <br>
-basic dni , -15 dni , proshit gtfo EUUGUHGH . also i hide freely <br>
+basic dni , -15 dni , irls / da's , proshit gtfo EUUGH . also i hide freely <br>
 i don't int with fandoms sorry . <i> no </i> tonetags , thanku <3
 </p>
 
