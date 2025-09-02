@@ -1,4 +1,4 @@
-<img src="https://file.garden/aD-uXN3dUA2X1CGJ/IMG_5336.png" width="300" height="1" /> ![](https://komarev.com/ghpvc/?username=burgerwolf7&color=351a43&style=plastic&label=☆&abbreviated=true)
+<img src="https://file.garden/aD-uXN3dUA2X1CGJ/IMG_5336.png" width="400" height="1" /> ![](https://komarev.com/ghpvc/?username=burgerwolf7&color=351a43&style=plastic&label=☆&abbreviated=true)
 
 <p align="center"> <img src="https://64.media.tumblr.com/57ffc7c0f13cfdf0455084e6db6f3119/b18bc966dd93b765-3a/s500x750/dce495acaa8583a312f75b755ec139f7271c2c44.gifv" width="350" height="350" alt="mayoi ayase enstars" /> </p>
 <p align="center">
