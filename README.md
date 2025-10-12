@@ -3,7 +3,7 @@
 <p align="center"> <img src="https://64.media.tumblr.com/57ffc7c0f13cfdf0455084e6db6f3119/b18bc966dd93b765-3a/s500x750/dce495acaa8583a312f75b755ec139f7271c2c44.gifv" width="350" height="350" alt="mayoi ayase enstars" /> </p>
 <p align="center">
 <img src="https://64.media.tumblr.com/da458381ac93e135fedf604500cf9ba9/c80e85c672fd2385-bf/s75x75_c1/35dd9fdd6f5a664437392c95f8dc4c110af76461.gifv" />
-<b> vivian </b> / alice / mavis <img src="https://file.garden/aD-uXN3dUA2X1CGJ/IMG_5336.png" width="1" height="1" /> ✦ <img src="https://file.garden/aD-uXN3dUA2X1CGJ/IMG_5336.png" width="1" height="1" /> shy / hymn / yip <br>
+<b> vivian </b> / mavis / alice <img src="https://file.garden/aD-uXN3dUA2X1CGJ/IMG_5336.png" width="1" height="1" /> ✦ <img src="https://file.garden/aD-uXN3dUA2X1CGJ/IMG_5336.png" width="1" height="1" /> she / they / yip <br>
 enstars is literally my favorite thing ever <br>
 </p>
 </div>
