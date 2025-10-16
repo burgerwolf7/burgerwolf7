@@ -14,7 +14,7 @@ i like burgers and soup <br>
 
 <p align="center">
 im pretty dry / blunt sorry , also im <b> forgetful </b> so i may <br>
-forget to respond to crowns ! i try not to ignore them though <br>
+forget to respond to crowns <i> ! </i> i try not to ignore them though <br>
 dni proshit , -15 , irl/da/kin , lesboys , etc etc . i hide freely . <br>
 i dont int with fandoms sorry . <i> no </i> tonetags , thanku <3
 </p>
