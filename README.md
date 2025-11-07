@@ -13,9 +13,10 @@ i like burgers and soup <br>
 
 <p align="center">
 audhd , i can by dry / blunt sorry im not being an asshole . . . <br>
-FORGETFUL IM SORRY IF I FORGET ABOUT CROWNS not ignoring you <br>
+IM SORRY IF I FORGET ABOUT CROWNS not ignoring you <br>
 dni proshit , -15 , irl/da/kin , lesboys , etc etc . i hide freely . <br>
-i dont int with fandoms sorry . <i> no </i> tonetags , thanku <3
+i dont int with fandoms sorry . <i> no </i> tonetags , thanku <3 <br>
+frq's ALWAYS off . i will not friend anyone
 </p>
 
 <p align="center">
