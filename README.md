@@ -2,7 +2,7 @@
 
 <p align="center"> <img src="https://64.media.tumblr.com/044f19fd80ac0800803d00ef66760b81/87ee3c65627afe56-6d/s540x810/3db700c3e3adbcd289f22e59eb15927d5823ff43.pnj" width="350" height="350" alt="me ok?" /> </p>
 <p align="center">
-<b> vivian </b> / mavis / alice <img src="https://file.garden/aD-uXN3dUA2X1CGJ/IMG_5336.png" width="1" height="1" /> ✦ <img src="https://file.garden/aD-uXN3dUA2X1CGJ/IMG_5336.png" width="1" height="1" /> she / they / yip <br>
+<b> vivian </b> / mel <img src="https://file.garden/aD-uXN3dUA2X1CGJ/IMG_5336.png" width="1" height="1" /> ✦ <img src="https://file.garden/aD-uXN3dUA2X1CGJ/IMG_5336.png" width="1" height="1" /> she / they / yip <br>
 i like burgers and soup <br>
 </p>
 </div>
