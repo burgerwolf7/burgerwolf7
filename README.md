@@ -3,4 +3,4 @@
 <p align=center> audhd , i am blunt and use NO tonetags . frq ALWAYS off <br>
   i always respond to whispers unless i dont see them! <br>
   dont int if under 15 , i dont int with fandoms either <br>
-<p align=center> <a href="https://burgerwolf7.atabook.org">atabook</a> ⠀ <a href="https://rentry.co/gtfos">dni list</a> </p>
+<p align=center> <a href="https://sasuki.straw.page">strawpage</a> ⠀ <a href="https://burgerwolf7.atabook.org">atabook</a> ⠀ <a href="https://rentry.co/gtfos">dni list</a> </p>
