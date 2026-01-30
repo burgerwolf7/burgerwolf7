@@ -11,10 +11,9 @@ i love my hot boyfriend <br>
 </p>
 
 <p align="center">
-audhd , i use NO tonetags but you can ask for my tone <br>
+audhd sys , i use NO tonetags but you can ask for my tone <br>
   i always respond to whispers unless i dont see them! <br>
-  i turn down most frq unless we int often / you get to know me <br>
-  dont int if under 15 , i dont int with fandoms either <br>
+  dont int if under 15  or proshit , i dont int with fandoms either <br>
 <p align=center> <a href="https://vivvvy.straw.page/">strawpage</a> ⠀ <a href="https://burgerwolf7.atabook.org">atabook</a> ⠀ <a href="https://rentry.co/gtfos">dni list</a> </p>
 </p>
 
