@@ -1,6 +1,6 @@
 <div align="right">
-  <img src="https://file.garden/aD-uXN3dUA2X1CGJ/top2" width="1000" height="200" /> <br>
-  <img src="https://file.garden/aD-uXN3dUA2X1CGJ/laios.webp" align="right" width="300" height="700" />
+  <img src="https://64.media.tumblr.com/98c8f665b321c83839be203c66eedbd9/afe6b07269c398c4-b3/s2048x3072/d7c59f5cabfc7ebca8c6f91c3e3525ee9123f831.pnj" width="1000" height="200" /> <br>
+  <img src="https://64.media.tumblr.com/bcdd64197309ec8a48411bedd1e92698/afe6b07269c398c4-35/s1280x1920/e37d957f0d6aad5de856c2a65ba1ae986b019544.pnj" align="right" width="300" height="700" />
 </div>
 <br>
 <p align=center> <img src="https://64.media.tumblr.com/5bc64457deb6c8c4f6a7e24c35af800f/6e90d66f0b49f115-9c/s75x75_c1/db9a28eb67d62d7b89b83dabaf0b0ef4adeae6d9.gifv" /> <br>
@@ -22,5 +22,5 @@ $\color{#d0c7bc}{\textsf{click my links or perish}}$ <br>
 <br>
 <br>
 <div align="right">
-  <img src="https://file.garden/aD-uXN3dUA2X1CGJ/bottom2" width="1000" height="200" />
+  <img src="https://64.media.tumblr.com/7d1104b79f48967a23e10c1e57488422/afe6b07269c398c4-0b/s2048x3072/b7007b6c75c288ab6955725f29196734881be7c6.pnj" width="1000" height="200" />
 </div>
