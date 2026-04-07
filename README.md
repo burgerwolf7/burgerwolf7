@@ -15,7 +15,7 @@ $\color{#d0c7bc}{\textsf{i can be blunt or dry sometimes}}$ <br>
   <br>
 $\color{#d0c7bc}{\textsf{-15 iwcau and proship dni}}$ <br>
 $\color{#d0c7bc}{\textsf{click my links or perish}}$ <br>
-<a href="https://vivvvy.straw.page/">strawpage</a> ⠀ <a href="https://burgerwolf7.atabook.org">atabook</a> ⠀ <a href="https://rentry.co/gtfos">dni list</a> <br>
+<a href="https://burgerwolf7.atabook.org">atabook</a> ⠀ <a href="https://rentry.co/gtfos">dni list</a> <br>
 <img src="https://64.media.tumblr.com/166bdc2ef1b5f6ac5a8211331a31e83f/41415c81b3385e35-64/s75x75_c1/e9b1387029dd3f7fa4d135d4d197f20b207716de.gifv" /> <br>
 
 <img align="center" src="https://komarev.com/ghpvc/?username=burgerwolf7&color=a79c8b&style=plastic&label=☆&abbreviated=true" />
