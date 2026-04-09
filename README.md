@@ -7,7 +7,7 @@
   $\color{#d0c7bc}{\textsf{they / yip , ilmbf}}$ <br>
   $\color{#d0c7bc}{\textsf{no. 1 touden enjoyer}}$ <img src="https://64.media.tumblr.com/8eb2a892ce7fa168dd49a463c82cb480/d1cde159cbf40136-90/s75x75_c1/b013ff0e8cc17768b8fb71a82b95893b7b629c83.gifv" /> <br>
 $\color{#d0c7bc}{\textsf{i can be blunt or dry sometimes}}$ <br>
-  $\color{#d0c7bc}{\textsf{audhd system bare with me ok}}$ <br>
+  $\color{#d0c7bc}{\textsf{audhd bare with me ok}}$ <br>
   $\color{#d0c7bc}{\textsf{i dont use tonetags , dont use them on me}}$ <br>
   $\color{#d0c7bc}{\textsf{my frqs are off so just ask me!!}}$ <br>
   <br>
