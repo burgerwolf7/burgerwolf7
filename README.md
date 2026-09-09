@@ -13,7 +13,7 @@ $\color{#d0c7bc}{\textsf{i can be blunt or dry sometimes}}$ <br>
   <br>
   <img src="https://64.media.tumblr.com/3bfc4242ec482f5f82fecc857f4db078/9a2f12012a2e5a64-2d/s2048x3072/2ec4edca659a84c5ea319efc807e7308c097f9e7.pnj" width="500" height="50" > <br>
   <br>
-$\color{#d0c7bc}{\textsf{-15 iwcau and proship dni}}$ <br>
+$\color{#d0c7bc}{\textsf{-15 and proship dni}}$ <br>
 $\color{#d0c7bc}{\textsf{click my links or perish}}$ <br>
 <a href="https://burgerwolf7.atabook.org">atabook</a> ⠀ <a href="https://rentry.co/gtfos">dni list</a> <br>
 <img src="https://64.media.tumblr.com/166bdc2ef1b5f6ac5a8211331a31e83f/41415c81b3385e35-64/s75x75_c1/e9b1387029dd3f7fa4d135d4d197f20b207716de.gifv" /> <br>
